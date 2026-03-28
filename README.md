@@ -1,4 +1,4 @@
-Videos:
+Videos: ((CURRENTLY SORTING ALL OF THE RECORDINGS))
 
 **Week3:**
 https://drive.google.com/drive/folders/1B-n5QLQoO3KRaG2szufTT6HF-ca9Rqd4?usp=sharing
